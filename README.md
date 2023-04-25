@@ -10,6 +10,7 @@ GAME SITES
 https://3kh0.net
 https://3kho.github.io/
 https://1kh0.github.io/
+https://suite.saltyspamz.xyz/
 https://holgrave777.github.io/3kho.github.io/
 https://9kh0.github.io/about
 https://9kh0.github.io/
