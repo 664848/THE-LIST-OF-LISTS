@@ -6,6 +6,8 @@ ALL GAMES AND SITE NOT MADE BY ME made by others and all credit goes to them
 
 
 ### GAME SITES:   
+https://github.com/TrickJoker312/Unblocked-Sites
+https://github.com/Parcoil/nativegames.net
 https://3kh0.net   
 https://3kho.github.io/   
 https://1kh0.github.io/   
